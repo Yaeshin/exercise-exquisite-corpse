@@ -15,5 +15,6 @@ Il se rappela des mots du vieux sage galactique qui lui avaient enseigné que la
 Cette décision audacieuse inspira son équipe, et ensemble, ils firent des prouesses incroyables dans le tournoi, prouvant que le pouvoir de choisir avec confiance peut conquérir n'importe quel défi, même dans les coins les plus reculés de l'univers.
 
 
+Le tournoi interstellaire était un événement spectaculaire, réunissant des équipes venues de toutes les galaxies. Les compétitions étaient féroces, mais l'indécis et son équipe se montrèrent à la hauteur de chaque défi. Ils se déplaçaient en harmonie, guidés par leur intuition et leur confiance mutuelle.
 
 
